@@ -27,7 +27,7 @@ https://medium.com/@fizanprince001
 
 Wordpress
 
-https://essentials211.wordpress.com
+https://wordpress.com/home/essentials211.wordpress.com
 
 Blogger
 
